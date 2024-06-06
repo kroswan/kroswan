@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with kojima
 - 📫 How to reach me you dont
 - 😄 Pronouns: she/ra
-- ⚡ Fun fact:
+- ⚡ Fun fact: i love Switzerland
 
 <!---
 kroswan/kroswan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
