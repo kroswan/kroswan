@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @kroswan
 - 👀 I’m interested in gamedev
 - 🌱 I’m currently learning codes
-- 💞️ I’m looking to collaborate with kojima
-- 📫 How to reach me you dont
 - 😄 Pronouns: she/ra
 - ⚡ Fun fact: i love Switzerland
 
